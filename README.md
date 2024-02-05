@@ -3,4 +3,4 @@ Hello I am Mohamed Jabril I go by Mo for short. I was born in Kenya but I was ra
 
 Every day may not be good, but there's something good in every day." - Unknown
 
-![[Happy](https://tenor.com/view/man-blushing-smiling-black-man-gif-12577926127425382641)
+![Happy](://github.com/MoJabril/MoJabril.github.io/blob/main/man-blushing-smiling.gif?raw=true)
